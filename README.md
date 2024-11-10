@@ -1,3 +1,3 @@
 # FlipGate-Launcher
-CURRENTLY UNIVAILIBLE!
+CURRENTLY UNAVAILABLE!
 thanks for the support tho <3
